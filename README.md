@@ -62,7 +62,7 @@ During the project, I identified a data inconsistency: the original `patient_pay
 ---
 
 ## 📬 Contact
-**Miriam** – [miriam.gp1000@gmail.com /linkedin.com/in/miriam-gonzalez-a8793a381]
+**Miriam** – [Email](mailto:miriam.gp1000@gmail.com) | [LinkedIn](https://linkedin.com/in/miriam-gonzalez-a8793a381)
 
 ---
 
